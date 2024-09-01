@@ -26,7 +26,7 @@
 - **English:** He/Him
 
 ## ⚡ Curiosità / Fun fact
-- ⚜️ **Curiosità:** Sono uno scout e un giorno sogno di diventare capo scout!
+- ⚜️ **Curiosità:** Sono uno scout e un giorno sogno di diventare capo: è la passione!
 - ⚡ **Fun fact:** I’m a scout, and I aspire to become a scout leader one day!
 
 ---
