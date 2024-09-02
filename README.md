@@ -30,7 +30,7 @@
 - ⚡ **Fun fact:** I’m a scout, and I aspire to become a scout leader one day!
 
 ## 🔥 Come supportarmi? / How can you support me?
-- [![ko-fi page](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/N4N612SSUW)
+[![Ko-fi page](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/N4N612SSUW)
 
 ---
 
