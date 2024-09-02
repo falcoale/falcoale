@@ -29,6 +29,9 @@
 - ⚜️ **Curiosità:** Sono uno scout e un giorno sogno di diventare capo: è la passione!
 - ⚡ **Fun fact:** I’m a scout, and I aspire to become a scout leader one day!
 
+## 🔥 Come supportarmi? / How can you support me?
+- [![ko-fi page](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/N4N612SSUW)
+
 ---
 
 **✨ Grazie per aver visitato il mio profilo! / Thanks for visiting my profile!** ✨
